@@ -1,1 +1,0 @@
-# Bariq-Adyatma_019_smt2_prak7
